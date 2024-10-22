@@ -1,10 +1,10 @@
 # Data Analyst
 
 ### Education
-Rien du tout 
+A ecrire
 
 ### Work experience
-Rien du tout 
+A ecrire
 
 ### Projects
 Project 1: 
